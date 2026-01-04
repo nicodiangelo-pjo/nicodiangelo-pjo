@@ -17,12 +17,8 @@ c+h pls
 usual dni, creeps, weirdos, and toxic shippers.
 
 
-![17675683560008772100908601007852](https://github.com/user-attachments/assets/776e9d40-ca44-47c3-82d1-0ef48daf6647)
-
-this is me in fanart, both are from fefox so credits to that person.
-
-![17675684626946266811666945527118](https://github.com/user-attachments/assets/1d6f3116-e906-401b-b1a7-b7d3c28cb5f8)
-
-
 "healing is not easy, it never was or never will be, suffering hurts so much, and i know that, but giving up won't do anything good, not now, not ever, it takes a long time to heal, months, years, decades, healing is a long process."-(myonlinefatherfigureithink) this is what forevershaped me
+
+
+Also autistic asf expect sensory overloads + overstimulation
 
