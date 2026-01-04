@@ -6,6 +6,7 @@ Understand that I am only a fict/kin and not the actual person, I may act out of
 
 
 ![17675690053066177650598198153422](https://github.com/user-attachments/assets/65132d10-1c5e-4cac-9082-65ea89eb61f7)
+(credits on the actual image)
 
 
 int: main cast/main 7, especially Will, huge comfort to me
